@@ -12,8 +12,7 @@ this repo is for daily updates
 
 updated for updates 
 
-how do you write the code code 
-
+how do you write the code code hahahahababana
 hello how are you 
 
 chjkfzbh vgfesfgvvcf
