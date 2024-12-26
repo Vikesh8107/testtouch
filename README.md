@@ -14,6 +14,8 @@ updated for updates
 
 hey how can I help u
 
+how to help u for this pls tell.
+
 how do you write the code code hahahahababana
 hello how are you 
 
