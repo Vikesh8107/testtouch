@@ -12,8 +12,7 @@ this repo is for daily updates
 
 updated for updates 
 
-hey how can I help u
-
+hey how can I help ujahajak
 how to help u for this pls tell.
 
 how do you write the code code hahahahababana
