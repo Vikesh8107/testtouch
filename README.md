@@ -9,6 +9,9 @@ This is the Repository
 
 8 Rolando cr
 
+jinka 
+
+
 yeah this are the readme filea
 
 this repo is for daily updates
